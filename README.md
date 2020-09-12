@@ -6,4 +6,3 @@ Server damit kannst du Bannen, kicken, Reviven und Töten  es ist auch ein Job N
 
 
 here is the download link: http://www.mediafire.com/folder/kmqp4tm81ptu5
-hier der Download Link:    http://www.mediafire.com/folder/kmqp4tm81ptu5
